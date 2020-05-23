@@ -4,5 +4,5 @@
 
 "His life was a complete lie as he was really covered in his own feces..."
 
-"There was a awful smell lingering around him"
+"There was an awful smell lingering around him"
 
